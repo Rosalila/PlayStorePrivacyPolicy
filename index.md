@@ -1,4 +1,4 @@
-<b>POLÍTICA DE PRIVACIDAD</b>
+<b>POLÍTICA DE PRIVACIDADx</b>
 
  
 
